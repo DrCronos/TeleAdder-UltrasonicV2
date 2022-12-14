@@ -15,6 +15,10 @@ This is the fastest Telegram adding script on github with a variety of features.
 
 -📌 Most of the functionality of this robot is in the field of digital currencies and digital currency and stock market groups. Now you may be asking how? Because stock market and pump and digital currency groups must have more active users so that the owner of the group can be more successful than other competitors. ! Increase your income tenfold with this robot!
 
+
+TELEGRAM: @Cronos1402
+
+
 -📌 Features of version 1.1.4 of the :
 
 -📌 Transport the group members as soon as possible
@@ -80,7 +84,10 @@ This is the fastest Telegram adding script on github with a variety of features.
 -📌 equipped with the latest and most advanced methods; Coded with the popular and powerful Python language and the powerful telethon library
 
 How to get a license :
-📌 Send a message to my ID to get the license 👇
+📌 Send a message to my ID to get the license 120$ 👇
+TELEGRAM: @Cronos1402
+
+
 TELEGRAM: @Cronos1402
 
 
